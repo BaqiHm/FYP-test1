@@ -1,2 +1,2 @@
-Hello there,
-Baqi Disini~~
+wasssup bro,
+Baqi Disana
